@@ -11,4 +11,4 @@ Peter Otieno|04/09/2000|kisumu|Tuesday|9:00AM|6:00PM|
 * Time in 
 * Time out
 
-![alt Helicopter](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.gq-magazine.co.uk%2Farticle%2Fhelicopter-buying-guide-airbus&psig=AOvVaw0hItuzFfNO2T5r3ieqOWQB&ust=1632909138583000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCIDssduyofMCFQAAAAAdAAAAABAJ)
+![alt Helicopter](https://media.gq-magazine.co.uk/photos/5d1398faeef921e6e09ff155/16:9/w_2560%2Cc_limit/airbus-helicopters-4-gq-3jun15-pr_b.jpg))
